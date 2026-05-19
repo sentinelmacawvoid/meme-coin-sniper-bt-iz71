@@ -1,4 +1,4 @@
-# 
+# elite bot de arbitragem MEV scripts é o melhor bot de arbitragem MEV scripts com controle de slippage e detecção de novos tokens. Seguro, confiável e otimizado para estratégias
 
 
 
